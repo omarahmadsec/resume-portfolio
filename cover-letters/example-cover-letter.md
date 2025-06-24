@@ -2,7 +2,7 @@ Omar Ahmad
 oesoliman@gmail.com
 916-620-0979  
 [City, State]  
-[GitHub](https://github.com/omarahmadsec) • [LinkedIn](https://linkedin.com/in/YOUR_PROFILE](https://www.linkedin.com/in/omar-ahmad-873586270/)  
+[GitHub](https://github.com/omarahmadsec) • [LinkedIn](https://www.linkedin.com/in/omar-ahmad-873586270/)  
 
 [Date]
 
